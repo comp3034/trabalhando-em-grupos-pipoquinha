@@ -1,1 +1,4 @@
 A real história de Smokey Nagata e o Supra que causou sua prisão na inglaterra! O Supra 1996 com um 2JZ-GTE Non-VVTI foi comprado 0km pelo próprio Nagata, que mais tarde teve o seu motor trocado pelo motor RB26DETT da Nissan. O carro recebeu diversos upgrades e, segundo Nagata, a potência ficava em torno de 750 hp.
+
+808 HP Henessey Heritage Edition Mustang
+alteracao hehe
